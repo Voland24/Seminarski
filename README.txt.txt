@@ -1,0 +1,1 @@
+Info za seminarski
